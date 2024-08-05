@@ -6,7 +6,7 @@ meu nome é Maria Clara
 
 •I am using this platform to share my projects and development of new learning 
 
-![](
+![](https://tenor.com/pt-BR/view/hellokittyciabeauty-gif-12098763032503222416)
 
 
 

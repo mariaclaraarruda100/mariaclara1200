@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil 💗
 
-meu nome é Maria Clara 
+•meu nome é Maria Clara 
 
 •I'm studying at the [alura](https://www.alura.com.br) 
 
